@@ -4,7 +4,7 @@
 
 ## Der Vater der [[Rassen/Nari/Nari\|Nari]]
 
-Im Zentrum von [[Regionen/Narital/Narital\|Narital]], umgeben von dichten Wäldern lebt  das wohl älteste Lebewesen von [[Tisfae\|Tisfae]]. 
+Im Zentrum von [[Regionen/Narital/Narital\|Narital]], umgeben von dichten Wäldern lebt  das wohl älteste Lebewesen von [[Regionen/Tisfae\|Tisfae]]. 
 Wie Adern fließen verschiedene Flüsse in das Sumpfgebiet und speisen das Herzstück dieser Region. Eine große Lichtung macht platz und zollt Respekt zu diesem Baum. Ein gewaltiger Baum. 
 Tief verwurzelt mit allem was lebt. 
 
