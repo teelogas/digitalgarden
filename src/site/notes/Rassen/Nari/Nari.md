@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/rassen/nari/nari/","dg-note-properties":{"tags":null,"aliases":null}}
+{"dg-publish":true,"permalink":"/rassen/nari/nari/","dg-note-properties":{"tags":null,"aliases":["Naris"]}}
 ---
 
 

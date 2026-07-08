@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/rassen/nari/seelenbaum/","dg-note-properties":{"tags":null,"aliases":null}}
+{"dg-publish":true,"permalink":"/rassen/nari/seelenbaum/","dg-note-properties":{"tags":null,"aliases":["Seelenbaums"]}}
 ---
 
 ## Der Vater der [[Rassen/Nari/Nari\|Nari]]

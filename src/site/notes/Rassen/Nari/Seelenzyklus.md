@@ -8,5 +8,5 @@ Der Tod hat für die [[Rassen/Nari/Nari\|Nari]] eine völlig andere Bedeutung a
 
 Die großen, gelb-roten, Kokon-artigen Früchte die der [[Rassen/Nari/Seelenbaum\|Seelenbaum]] trägt, geben diesem Volk leben. Sie gebären neue Seelen und auch die, die bereits diese Welt mehrmals besuchten.
 
-Verbunden mit weiten Teilen [[Regionen/Narital/Narital\|Narital]]s, wachsen seine Früchte nicht nur im zentralen Sumpfgebiet. Jeder Stamm der [[Rassen/Nari/Nari\|Nari]] hat seine eigenen Früchte. Der [[Rassen/Nari/Seelenzyklus\|Seelenzyklus]] sorgt dafür, dass jede Seele im Verlauf der Zeit Erfahrung sammelt.  
+Verbunden mit weiten Teilen [[Regionen/Narital/Narital\|Naritals]], wachsen seine Früchte nicht nur im zentralen Sumpfgebiet. Jeder Stamm der [[Rassen/Nari/Nari\|Nari]] hat seine eigenen Früchte. Der [[Rassen/Nari/Seelenzyklus\|Seelenzyklus]] sorgt dafür, dass jede Seele im Verlauf der Zeit Erfahrung sammelt.  
 Obwohl, die Stämme oft sehr große Unterschiede aufweisen sorgt dieser Seelenaustausch für ein großes Gemeinsamkeitsgefühl.
