@@ -12,5 +12,4 @@ Um von dem versumpften Untergrund Abstand zu gewinnen, haben die [[Rassen/Nari/N
 Die Einwohner von [[Regionen/Narital/Bilerut\|Bilerut]] differenzieren sich von den anderen Stämmen vor allem durch ihre Nähe zum [[Rassen/Nari/Seelenbaum\|Seelenbaum]], welcher das Zentrum von dem Dorf bildet. Die [[Rassen/Nari/Nari\|Nari]] die hier leben sehen es als ihre Aufgabe, den Baum zu beschützen und zu pflegen.
 Viele Nari außerhalb von [[Regionen/Narital/Bilerut\|Bilerut]] versuchen mindestens einmal pro Leben zum [[Rassen/Nari/Seelenbaum\|Seelenbaum]] zu pilgern. 
 
-Die Stimmung ist in diesem Teil des Waldes deshalb oft etwas aufgeweckter und lebendiger durch den regen Austausch der Stämme. Typischerweise machen sich dann aber die Einwohner von [[Regionen/Narital/Bilerut\|Bilerut]] über die Touristen des öfteren lustig, während andersrum die anderen Stämme oft stirnrunzelnd auf die, von den Elfen etwas verhätschelten, Nari in [[
-]] schaun.
+Die Stimmung ist in diesem Teil des Waldes deshalb oft etwas aufgeweckter und lebendiger durch den regen Austausch der Stämme. Typischerweise machen sich dann aber die Einwohner von [[Regionen/Narital/Bilerut\|Bilerut]] über die Touristen des öfteren lustig, während andersrum die anderen Stämme oft stirnrunzelnd auf die, von den Elfen etwas verhätschelten, Nari in [[Regionen/Narital/Bilerut\|Bilerut]] schaun.
